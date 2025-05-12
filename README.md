@@ -92,6 +92,18 @@ Here are the top EverBee discount codes to help you save on subscriptions and up
 
 Note: Each EverBee coupon code may have usage restrictions or apply only to new accounts, so always double-check the total before completing checkout.
 
+## How To Redeem Dux-Soup Coupon?
+
+Step 1: Visit the official EverBee website.
+
+Step 2: Choose your plan and click on subscribe button
+
+Step 3: Discount is applied automatically
+
+Step 4: Pay the remaining amount and complete order
+
+You have claimed the 30% discount on EverBee.
+
 ### More coupons
 
 * [Blaze.ai Promo Code](https://github.com/williamssw/Blaze/)
